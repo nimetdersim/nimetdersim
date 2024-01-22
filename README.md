@@ -3,5 +3,6 @@ As a chemical engineer I have gained valuable experiences in various industries 
 In my professional journey, I have always sought challenges and opportunities. I'm ready to bring my diverse skill set and commitment to the world of data analytics.
 
 Linkedin: https://www.linkedin.com/in/nimet-kapan-14b99035/
+
 Tableau public: 
 
