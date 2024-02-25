@@ -4,5 +4,5 @@ In my professional journey, I have always sought challenges and opportunities. I
 
 Linkedin: https://www.linkedin.com/in/nimet-kapan-14b99035/
 
-Tableau public: 
+Tableau public: https://public.tableau.com/app/profile/nimet.kapan/viz/WealthOfNations_Assignment1/WEALTHOFNATIONS
 
